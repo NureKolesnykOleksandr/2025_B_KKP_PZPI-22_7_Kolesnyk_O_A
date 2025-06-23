@@ -1,0 +1,1 @@
+# 2025_B_KKP_PZPI-22_7_Kolesnyk_O_A
